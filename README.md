@@ -1,0 +1,2 @@
+# lalll.wyx
+You crazy
